@@ -13,4 +13,5 @@ When I'm not on my computer, I'm either travelling ğŸ, playing video games ğŸ•
 I'd love to [connect](https://www.linkedin.com/in/chanalytics/) if you share an interest in any of the topics I mentioned.
 
 All the best.
+
 Will
